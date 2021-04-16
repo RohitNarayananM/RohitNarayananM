@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RohitNarayananM
 - 👀 I’m interested in you
-- 🌱 I’m currently learning her
+- 🌱 I’m currently learning error
 - 💞️ I’m looking to collaborate on everything
 - 📫 How to reach me?
 
